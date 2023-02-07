@@ -1,1 +1,1 @@
-ALX is tough
+ALX requires a growth mindset
